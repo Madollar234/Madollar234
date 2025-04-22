@@ -2,7 +2,7 @@
 - 👀 I’m interested in  web development and cyber security 
 - 🌱 I’m currently learning  python and other programming languages 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me through email
+- 📫 How to reach me through email ljhmatoke123@gmail.com
 - 😄 Pronouns: he 
 - ⚡ Fun fact: ...
 
